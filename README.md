@@ -51,7 +51,7 @@ Should Adani Group pursue stake sales as a deleveraging strategy?
 
 ## Author
 Sanjana Stephen  
-MBA Finance Candidate | Investment Banking Aspirant  
+MBA Finance Candidate | Investment Banking Intern  
 CFA Level I Candidate (2026)
 
 ---
